@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ethical Hacking and Web Development
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on web development
-- 📫 My linkedin profile https://www.linkedin.com/in/bhoomika-katragadda-0b147a286/
+- 📫 My linkedin profile https://www.linkedin.com/in/bhoomika-katragadda
 - 😄 Pronouns: She/Her
 
 
