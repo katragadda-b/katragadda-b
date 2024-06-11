@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @katragadda-b / Bhoomika Katragadda
+- 👋 Hi, I’m @katragadda-b / KATRAGADDA BHOOMIKA
 - 👀 
 
 
